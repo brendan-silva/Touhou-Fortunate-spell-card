@@ -1,0 +1,1 @@
+# Touhou-Fortunate-spell-card
